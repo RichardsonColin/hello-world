@@ -1,2 +1,2 @@
-Hello Huumaan!
+Hello Hoomaan!
 Earth this is?
